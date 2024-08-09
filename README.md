@@ -4,3 +4,6 @@ Panic disorder is a type of anxiety disorder characterized by recurrent and unex
 Detecting panic disorder involves recognizing the signs and symptoms of panic attacks and assessing their frequency and impact on an individual's life.
 
 Overall, the detection of panic disorder involves recognizing the symptoms of panic attacks, assessing their frequency and impact, and conducting a thorough evaluation by mental health professionals. Early detection and appropriate treatment can significantly improve the quality of life for individuals with panic disorder.
+
+The demonstration video can be accessed from the following link.
+https://drive.google.com/file/d/1PLr-hscrQc2XytP657LTSP2Sgaj_oaJs/view?usp=sharing
